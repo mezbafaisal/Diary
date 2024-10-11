@@ -1,5 +1,5 @@
 # Diary
 Hey All,
-assalamu alaikum everyone,
-its my personal day to day life conversations.
-if you want you can read. 
+Assalamu Alaikum Everyone,
+Its my personal day to day life conversations.
+If you want you can read. 
